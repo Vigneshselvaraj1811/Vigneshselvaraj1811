@@ -2,8 +2,8 @@
 
 **Software Engineer | Python Backend Developer**
 
-[LinkedIn](https://www.linkedin.com/in/vignesh118/) | [Email](mailto:vigneshaasiga2020@gmail.com) | 📞 7502528112
-
+[LinkedIn](https://www.linkedin.com/in/vignesh118/) | [Email](mailto:vigneshaasiga2020@gmail.com) | | [Medium]([mailto:vigneshaasiga2020@gmail.com](https://ai-journal-hub.medium.com/) | 📞+91 7502528112
+ 
 ---
 
 ### 📈 About Me
